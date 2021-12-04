@@ -1,0 +1,1 @@
+# Elementele-de-tip-tabel.-
